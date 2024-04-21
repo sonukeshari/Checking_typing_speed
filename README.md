@@ -1,0 +1,1 @@
+Simplying checking typing speed
